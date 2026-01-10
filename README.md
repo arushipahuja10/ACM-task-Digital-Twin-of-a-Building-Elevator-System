@@ -1,0 +1,1 @@
+doc link for the writeup part of the task - https://docs.google.com/document/d/1UM1a2am3MqfzE0G37oWK01TEgDLI7rEyQZtOUp_pmNY/edit?usp=sharing
